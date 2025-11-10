@@ -1,2 +1,12 @@
 # MislankaNova-archive
-A few stories I managed to snatch after it all went down.
+
+A few stories & articles I managed to snatch after it all went down.
+
+谁又知道并非所有互联网上的事物都能终究得以永恒存在？我在wayback machine四处找，寻得的小说只剩下《玩具手枪》和《大冒险》两篇。所幸知乎上面尚存《鸟船》全文，以及其他的一些东西。《鸟船》……我至今都无法忘却第一次读到《鸟船》时他的笔力带给我的震撼。后来[Housewife's Song](https://sebastian.graphics/works/fiction/housewife-song/index.html)完稿的时候，Nova君发了消息来，说是期待读我的下一篇；你可知道这给了我多大的鼓舞吗？——自己喜欢的小说的作者居然发了信息过来说这种话？2020年时他也曾在Telegram发了信息来，但是我却误认他是别的人，因此没有回应——我至今都在咒骂当时的我的愚蠢。你可知道我从来就没有等于或多于二个或三个的读者？我虽不至于要像伯牙那样将笔或是键盘折为两半并从此不再写作，但是每次要写点什么的时候，我都痛感写作的意义缺失了一大块。
+
+当年答应的下一篇终究完稿了；可惜时间却是在七年后，我已彻底与他失去联系了。
+
+倘若他老人家尚在人世，不知他看着我现在正看着的这幅风景，会有什么感想。
+
+
+
