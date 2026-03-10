@@ -6,7 +6,7 @@ A few stories & articles I managed to snatch after it all went down.
 
 当年答应的下一篇终究完稿了；可惜时间却是在七年后，我已彻底与他失去联系了。
 
-倘若他老人家尚在人世，不知他看着我现在正看着的这幅风景，会有什么感想。
+If they're still around，不知他看着我现在正看着的这幅风景，会有什么感想。
 
 
 
